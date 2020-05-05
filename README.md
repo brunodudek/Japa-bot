@@ -1,2 +1,1 @@
-# Japa-bot
-VAI TOMA NO CU BRYAN 
+
